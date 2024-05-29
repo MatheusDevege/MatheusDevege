@@ -1,4 +1,4 @@
-## Boas Vndas Ao Meu Perfil 💙
+## Boas Vindas Ao Meu Perfil 💙
 
 Meu nome é Matheus Rennó 
 
